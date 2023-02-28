@@ -1,2 +1,0 @@
-# cableparatodoshd.replit.co
-tvvv
